@@ -46,6 +46,6 @@ How to contact us
 If you have any questions, comments or Suggestions on this privacy policy, please contact us at chu83861niao@163.com:
 
 As a rule, we will reply within 30 days.
-If you have any questions, comments or Suggestions regarding this privacy policy, please contact us at xingyecinaizhi@163.com
+If you have any questions, comments or Suggestions regarding this privacy policy, please contact us at wenpinxuan1@163.com
 
 Normally, we will reply within 30 days.
